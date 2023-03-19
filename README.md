@@ -1,6 +1,7 @@
-# Online casino test and experience
+# Online Casino Test and Experience
+<a href="https://casinova.org/" rel="noreferrer noopener"><img src="https://casinova.org/wp-content/uploads/2023/03/Casinova-org-logo.png" width="120" alt="Online Casino Reviews" data-canonical-src="https://casinova.org/wp-admin/upload.php?item=46189" style="max-width: 100%;"></a>
 
-Even if your visit to the online casino is in the truest sense of the word a “game of luck”, choosing the right casino shouldn't be. Testberichte.com has tested all reputable online casinos for you .
+Even if your visit to the online casino is in the truest sense of the word a “game of luck”, choosing the right casino shouldn't be.  Casinova.org has tested all reputable online casinos for you .
 
 There are different points of view by which the different online casinos should be compared with one another. We have checked every casino for you and placed special emphasis on security . We also looked at the bonus conditions and the fees for deposits and withdrawals at online casinos. Also the user-friendlinessmust not be neglected, whether on the move or on the desktop at home. Playing is much more fun when you can use the casino games intuitively, know that you are in good hands and can rely on competent support. The focus of our online casino test was on Germany, Austria and Switzerland.
 
